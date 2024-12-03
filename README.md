@@ -1,1 +1,3 @@
-# ddebrielle-port
+# Hey there, Im Diamond
+www.linkedin.com/in/diamond-debrielle-a39640206
+Some strength I wouold say I have is strong analytical abilities, time mangement, great commnuication skils. I value authenticity, empathy, and also excellence. Some things that intrest me in the cybersecurity industry is the creativity, problem solving, building and maintaining systems. Another reason why I am interested in this field is becuase there's never ending trends, your always going to learn something new. I belive my improving awareness, driving compliance and building resilience could definitely impact the cybersecurity industry.
